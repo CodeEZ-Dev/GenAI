@@ -51,9 +51,8 @@ Support Channel and Join this channel to get access to perks: https://youtube.co
 
 Join My whatsapp channel: https://whatsapp.com/channel/0029VaYUTdL17Emolh1Heu35
 
-Join My Telegram Channel:
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------
-                                    Thank you & Happy learning!!!!
+   #                             Thank you & Happy learning!!!!
 
 
 
