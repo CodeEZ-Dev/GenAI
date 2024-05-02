@@ -48,7 +48,9 @@ You can learn GenAI from basic from advanced concepts
 ## Above given topics are very high-level each and every topic, i will add complete list of topics to cover and learn
 
 Support Channel and Join this channel to get access to perks: https://youtube.com/@ittechzone8036?si=6185qgqpcG5-xC_i
+
 Join My whatsapp channel: https://whatsapp.com/channel/0029VaYUTdL17Emolh1Heu35
+
 Join My Telegram Channel:
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------
                                     Thank you & Happy learning!!!!
