@@ -34,7 +34,10 @@ You can learn GenAI from basic from advanced concepts
    #### 1. NLP Basics:
    #### 2. NLP Advanced:
 
-## 9. Generative AI
+## 9. Transformer Architecture
+ ### 1. Understand more on transformer architecture
+
+## 10. Generative AI
    #### 1. OpenAI:
    #### 2. Geminipro:
    #### 3. LLMA:
